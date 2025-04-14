@@ -7,4 +7,4 @@ Hice cambios con Jakqui
 ## Jakqui
 
 
-## Curso de Fernando en Udemy
+## Curso de Jakqui en Udemy
